@@ -29,7 +29,7 @@
 
 ## 📫 Connect With Me  
 - 📧 Email: **p.esmaeilie@gmail.com**
-- 💼 LinkedIn: *[Parsa esmaeilie](www.linkedin.com/in/parsa-esmaeili-a7a713385)*  
+- 💼 LinkedIn: *www.linkedin.com/in/parsa-esmaeili-a7a713385*  
  
 
 ---
